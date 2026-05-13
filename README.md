@@ -32,4 +32,4 @@ I am a cross-functional analytics professional with 3+ years of experience. I br
 ### 📫 Let's Connect
 - **LinkedIn:** [linkedin.com/in/srikarananand](https://linkedin.com/in/srikarananand)
 - **Email:** fsrikar@okstate.edu
-- **Location:** Stillwater, OK
+- **Location:** Irvine, CA
